@@ -1,1 +1,1 @@
-![Screenshot Capture - 2023-12-09 - 03-59-20](https://github.com/melanielaporte/toggle-buttons/assets/107901386/b30ea63e-fbe0-4491-be21-a4a8dd67445f)
+![Screenshot Capture - 2023-12-09 - 04-01-09](https://github.com/melanielaporte/toggle-buttons/assets/107901386/009e7998-76e4-4668-a712-31b672bbb620)
